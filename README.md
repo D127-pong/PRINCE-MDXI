@@ -148,7 +148,7 @@ JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER 
 <br>
 
 ```
-I'M PRINCE M.
+I'M PRINCE M
 ```
 -----
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
